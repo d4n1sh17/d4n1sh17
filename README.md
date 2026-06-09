@@ -1,10 +1,4 @@
  🥷🏿 Hi, I’m @d4n1sh17
- 
- welcome to whatever this is
- 
- ig.dan1sh17 
- 
- 🧊sfe
 
 
 <!---
